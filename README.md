@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @markoffline
+- 👋 Hi, I’m Sadiki (@sadiki0)
 - 👀 I’m interested in drugs
 - 🌱 I’m currently learning how to make perc 30
 
